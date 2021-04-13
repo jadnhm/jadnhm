@@ -2,8 +2,6 @@
 
 👀 I’m interested in building great teams that build great products
 
-🌱 I’m currently learning ...
-
 📫 How to reach me:
 - jadnhm@yahoo.com
 - https://www.linkedin.com/in/joel-dunham-65b04619/
