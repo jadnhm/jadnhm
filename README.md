@@ -1,4 +1,4 @@
-👋 Hi, I’m @jadnhm and I work at [Dash Hudson](https://dashhudson.com/)
+👋 Hi, I’m @jadnhm and I work at [Shopify](https://www.shopify.com)
 
 👀 I’m interested in building great teams that build great products
 
